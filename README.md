@@ -3,7 +3,7 @@
 - 👀 I’m interested in 3d web development
 - 🌱 I’m currently learning python stack for RRP automation
 - 💞️ I’m looking to collaborate on video development projects
-- 📫 How to reach me ...vireshwarbisen2958@gmail.com
+- 📫 How to reach me vireshwarbisen2958@gmail.com
 - 😄 Pronouns: HE/HIM
 - ⚡ Fun fact: JACK OF ALL TRADES..😅
 
